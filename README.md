@@ -2,6 +2,7 @@
 - 👀 I’m interested in writing,reading.
 - 🌱 I’m currently learning how to build websites
 - 📫 How to reach me - @apexscholar on instagram
+- I am 21 years old
 - I'm new to this so I will appreciate any tips given
 - Thank you :)
 
